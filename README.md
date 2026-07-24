@@ -5,7 +5,7 @@
   
 (˶˃⤙˂˶) [Strawpage!](https://ramencakes.straw.page) ( ˶ˆᗜˆ˵ ) [Ata_Book](https://ramencakes.atabook.org/) ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
 
-<p align="center">⋆˚✿˖°I love Mualani and Nuevillette the most! Game: Genshin Impact!⋆˚✿˖°
+<p align="center">⋆˚✿˖°I love Mualani and Neuvillette the most! Game: Genshin Impact!⋆˚✿˖°
 <img width="1200" height="202" alt="image" src="https://github.com/user-attachments/assets/d5179bf0-ce83-4216-88a8-23c7d98b79e1" />
 <img width="1200" height="673" alt="image" src="https://github.com/user-attachments/assets/f6209c70-8d8c-4f19-a48d-d3c8e13f314e" />
 <img width="1200" height="202" alt="image" src="https://github.com/user-attachments/assets/27b7ef41-d01f-4756-b847-bd48230210dc" />
