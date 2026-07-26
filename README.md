@@ -22,4 +22,8 @@
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/277fee65-3a4b-41b9-8271-d9fb81b55d8f" />
 <img width="640" height="60" alt="image" src="https://github.com/user-attachments/assets/fbee29d7-ff2a-4a2a-93aa-fa2d917811ea" />
 
+
+
+
+<p align="center"><img width="314" height="342" alt="image" src="https://github.com/user-attachments/assets/70689a4b-2654-47fd-932f-ed67661f6c99" />
 <p align="center">°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･And you can call me Ramen!!°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
