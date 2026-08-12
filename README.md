@@ -27,3 +27,4 @@
 
 <p align="center"><img width="314" height="342" alt="image" src="https://github.com/user-attachments/assets/70689a4b-2654-47fd-932f-ed67661f6c99" />
 <p align="center">°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･And you can call me Ramen!!°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
+<p align="center">⋅°₊ • ୨୧ ‧₊° ⋅(Artist for first image @lunarpoetry on Cara.app link: https://cara.app/lunarpoetry/all) ⋅°₊ • ୨୧ ‧₊° ⋅
