@@ -6,7 +6,13 @@
 (˶˃⤙˂˶) [Strawpage!](https://ramencakes.straw.page) ( ˶ˆᗜˆ˵ ) [Ata_Book](https://ramencakes.atabook.org/) ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
 
 <p align="center">⋆˚✿˖°I love Mualani and Neuvillette the most! Game: Genshin Impact!⋆˚✿˖°
-<p align="center">₊⊹.݁⟡ ݁.⊹₊ ݁.I do ship Wriothesley and Neuvillette, I have a few other ships but I wont push it on you if you dont like it !!!₊⊹.݁⟡ ݁.⊹₊ ݁.  
+<p align="center">₊⊹.݁⟡ ݁.⊹₊ ݁.I do ship Wriothesley and Neuvillette, I have a few other ships but I wont push it on you if you dont like it !!!₊⊹.݁⟡ ݁.⊹₊ ݁. 
+  <p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31dq52vgjark5xonu6yrktnycpzq&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31dq52vgjark5xonu6yrktnycpzq&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=true&hide_remaster=false&bar_color_cover=true">
+  </a>
+</p>
+
 <img width="1200" height="202" alt="image" src="https://github.com/user-attachments/assets/d5179bf0-ce83-4216-88a8-23c7d98b79e1" />
 <img width="1200" height="673" alt="image" src="https://github.com/user-attachments/assets/f6209c70-8d8c-4f19-a48d-d3c8e13f314e" />
 <img width="1200" height="202" alt="image" src="https://github.com/user-attachments/assets/27b7ef41-d01f-4756-b847-bd48230210dc" />
