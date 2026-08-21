@@ -7,11 +7,6 @@
 
 <p align="center">⋆˚✿˖°I love Mualani and Neuvillette the most! Game: Genshin Impact!⋆˚✿˖°
 <p align="center">₊⊹.݁⟡ ݁.⊹₊ ݁.I do ship Wriothesley and Neuvillette, I have a few other ships but I wont push it on you if you dont like it !!!₊⊹.݁⟡ ݁.⊹₊ ݁. 
-  <p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31dq52vgjark5xonu6yrktnycpzq&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31dq52vgjark5xonu6yrktnycpzq&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=true&hide_remaster=false&bar_color_cover=true">
-  </a>
-</p>
 
 <img width="1200" height="202" alt="image" src="https://github.com/user-attachments/assets/d5179bf0-ce83-4216-88a8-23c7d98b79e1" />
 <img width="1200" height="673" alt="image" src="https://github.com/user-attachments/assets/f6209c70-8d8c-4f19-a48d-d3c8e13f314e" />
@@ -24,6 +19,11 @@
 <p align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.I play a few other games like:. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 <p align="center">.☘︎ ݁˖Sun Haven, Path of Titans, Isle, Minecraft, Pony Town and lots of other things!!.☘︎ ݁˖
+  <p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31dq52vgjark5xonu6yrktnycpzq&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31dq52vgjark5xonu6yrktnycpzq&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=true&hide_remaster=false&bar_color_cover=true">
+  </a>
+</p>
 
 <img width="640" height="60" alt="image" src="https://github.com/user-attachments/assets/8d54cb73-7a5b-4c76-8eaa-7a0ab9497dce" />
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/277fee65-3a4b-41b9-8271-d9fb81b55d8f" />
