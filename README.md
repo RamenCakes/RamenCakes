@@ -19,9 +19,11 @@
 <p align="center">. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.I play a few other games like:. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 <p align="center">.☘︎ ݁˖Sun Haven, Path of Titans, Isle, Minecraft, Pony Town and lots of other things!!.☘︎ ݁˖
-  <p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31dq52vgjark5xonu6yrktnycpzq&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31dq52vgjark5xonu6yrktnycpzq&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=true&hide_remaster=false&bar_color_cover=true">
+ <p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31dq52vgjark5xonu6yrktnycpzq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
+  </a>
+</p>uid=31dq52vgjark5xonu6yrktnycpzq&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=true&hide_remaster=false&bar_color_cover=true">
   </a>
 </p>
 
